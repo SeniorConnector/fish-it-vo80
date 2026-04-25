@@ -1,4 +1,4 @@
-
+king legacy advanced Script is the best king legacy Script, featuring teleport and auto-farm. Safe and powerful for all your needs.
 
 
 
